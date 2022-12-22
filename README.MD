@@ -17,7 +17,7 @@ OR
 
 ## Linux Hosting
 
-If you need VPS or dedicated hosting, please visit this link [Server Host](https://serverhost53.com)
+If you need VPS or dedicated hosting, please visit this link [Server Host](https://www.hostblast.online/aff.php?aff=7178)
 
 ## Support
 
